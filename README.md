@@ -1,0 +1,1 @@
+# adiyaman-gezi-rehberi
